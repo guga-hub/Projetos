@@ -1,4 +1,4 @@
-Olá! 
+Olá! :D
 
 Aqui vou postar projetos de bootcamps e cursos que irei fazer! 
 
